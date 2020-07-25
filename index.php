@@ -1,3 +1,2 @@
-
-Hey there!! 
-HAVE A GOOD DAY ;)
+Hey there...
+Have a good day ;)
